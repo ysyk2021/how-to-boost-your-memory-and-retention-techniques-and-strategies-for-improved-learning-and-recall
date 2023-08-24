@@ -1,5 +1,3 @@
-Active Learning Strategies for Improved Retention
-===========================================================================================================
 
 Active learning strategies are essential for improving memory retention and recall. In this chapter, we will explore strategies for using active learning to enhance memory retention.
 

@@ -1,5 +1,3 @@
-Memorizing Foreign Languages
-================================================================================================
 
 Memorizing a foreign language can be challenging, but there are specific techniques that can make the process more manageable. By breaking down the language into smaller pieces and using mnemonic devices, you can improve your ability to memorize vocabulary and grammar.
 

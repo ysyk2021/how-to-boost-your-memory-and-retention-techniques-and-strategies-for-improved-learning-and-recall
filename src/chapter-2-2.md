@@ -1,5 +1,3 @@
-The Different Types of Memory
-========================================================================
 
 Memory is a complex process that involves different types of memory, each with its unique function, process, and capacity. Understanding the different types of memory can help you develop effective techniques and strategies for improving your retention and recall abilities.
 

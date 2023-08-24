@@ -1,5 +1,3 @@
-Chapter 2: Understanding How Memory Works
-=========================================
 
 Understanding how memory works is crucial for improving your retention and recall abilities. Memory is a complex process that involves different stages, types, and factors that impact its functioning.
 

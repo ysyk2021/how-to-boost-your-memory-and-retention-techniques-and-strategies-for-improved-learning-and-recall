@@ -1,5 +1,3 @@
-Chapter 4: Maximizing Your Study Habits
-=======================================
 
 Maximizing your study habits is essential for effective learning and memory retention. In this chapter, we will explore strategies for optimizing your study environment, using effective study techniques, and developing a regular study routine.
 

@@ -1,5 +1,3 @@
-Optimizing Your Study Environment
-==========================================================================
 
 Creating an optimal study environment is essential for maximizing learning and memory retention. In this chapter, we will explore strategies for optimizing your study environment.
 

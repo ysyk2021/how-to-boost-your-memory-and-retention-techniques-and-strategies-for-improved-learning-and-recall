@@ -1,5 +1,3 @@
-Chapter 7: Techniques for Memorizing Specific Types of Information
-==================================================================
 
 Memorizing specific types of information requires different techniques and strategies. In this chapter, we will cover techniques for memorizing dates, names, and numbers, speeches and presentations, and foreign languages.
 

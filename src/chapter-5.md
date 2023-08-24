@@ -1,5 +1,3 @@
-Chapter 5: Rehearsal Techniques for Improved Recall
-===================================================
 
 Rehearsal techniques are essential for improving memory retention and recall. In this chapter, we will explore strategies for rehearsing information effectively, building a strong memory foundation, and tips for practicing and retaining new information.
 

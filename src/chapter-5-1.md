@@ -1,5 +1,3 @@
-Techniques for Rehearsing Information Effectively
-======================================================================================================
 
 Effective rehearsal techniques are essential for improving memory retention and recall. In this chapter, we will explore strategies for rehearsing information effectively.
 

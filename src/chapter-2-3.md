@@ -1,5 +1,3 @@
-The Impact of Aging on Memory
-========================================================================
 
 As we age, our memory abilities tend to decline due to changes in the brain's structure and function. The hippocampus, which is responsible for forming and storing new memories, is particularly vulnerable to age-related changes. Understanding the impact of aging on memory can help you take steps to maintain cognitive function and delay memory decline.
 

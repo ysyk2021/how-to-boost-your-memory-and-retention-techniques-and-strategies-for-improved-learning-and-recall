@@ -1,5 +1,3 @@
-Tips for Practicing and Retaining New Information
-======================================================================================================
 
 Rehearsal techniques are important for retaining new information. By practicing and repeating information, you can strengthen neural connections in the brain that form memories. Here are some tips for effective rehearsal techniques:
 

@@ -1,5 +1,3 @@
-Building a Strong Memory Foundation
-========================================================================================
 
 Rehearsal techniques are essential for building a strong memory foundation. By practicing and repeating information, you can strengthen neural connections in the brain that form memories. Here are some tips for effective rehearsal techniques:
 

@@ -1,5 +1,3 @@
-Using Effective Study Techniques
-=========================================================================
 
 Effective study techniques are crucial for improving memory and retention. In this chapter, we'll explore some of the most effective study techniques to help you maximize your learning potential.
 

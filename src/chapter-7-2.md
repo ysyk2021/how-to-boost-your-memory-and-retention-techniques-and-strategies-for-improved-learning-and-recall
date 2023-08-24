@@ -1,5 +1,3 @@
-Memorizing Speeches and Presentations
-=========================================================================================================
 
 Memorizing speeches and presentations can be a daunting task, but there are specific techniques that can make the process more manageable. By breaking down the information into smaller pieces and using mnemonic devices, you can improve your ability to memorize speeches and presentations.
 

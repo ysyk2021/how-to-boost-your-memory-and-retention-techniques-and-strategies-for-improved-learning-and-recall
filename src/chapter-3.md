@@ -1,5 +1,3 @@
-Chapter 3: Techniques for Enhancing Memory and Retention
-========================================================
 
 Improving memory and retention is essential for effective learning. By using specific techniques, you can enhance your ability to retain information and recall it when needed.
 

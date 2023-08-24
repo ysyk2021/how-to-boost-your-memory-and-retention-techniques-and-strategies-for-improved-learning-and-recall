@@ -1,5 +1,3 @@
-Mindfulness Practices for Improved Memory
-===============================================================================================
 
 Mindfulness practices, such as meditation or deep breathing exercises, can improve long-term memory retention. These practices can reduce stress and anxiety, which can negatively impact memory function. Furthermore, mindfulness practices can enhance attention and focus, which are critical components of effective learning and memory retention.
 

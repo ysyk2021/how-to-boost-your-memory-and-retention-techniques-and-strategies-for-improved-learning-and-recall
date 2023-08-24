@@ -1,5 +1,3 @@
-Developing a Regular Study Routine
-===========================================================================
 
 Developing a regular study routine is essential for maximizing one's study habits and improving memory retention and recall. In this chapter, we will explore strategies for developing a regular study routine.
 

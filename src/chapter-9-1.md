@@ -1,5 +1,3 @@
-Summarizing Key Points Presented in the Book
-===================================================================
 
 Throughout this book, we have covered many techniques and strategies for improving memory and retention. Here are some key points to summarize:
 

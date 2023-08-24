@@ -1,4 +1,3 @@
-# The Importance of Sleep and Rest
 
 In today's fast-paced world, it is easy to overlook one of the most essential aspects of learning and memory enhancement: sleep and rest. In this chapter, we will explore the profound impact that sleep and rest have on our cognitive abilities, and how adopting healthy sleep habits can significantly boost memory retention and overall learning potential.
 

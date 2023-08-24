@@ -1,5 +1,3 @@
-The Science of Memory and Human Cognition
-====================================================================================
 
 In order to effectively boost your memory and retention, it is important to understand how memory works. Memory is a complex process that involves several stages, each of which plays a role in the formation, storage, and retrieval of information.
 
@@ -40,5 +38,4 @@ Conclusion
 ----------
 
 Memory is a complex process that involves several stages and factors. Understanding how memory works can help you develop effective techniques and strategies for improving your memory and retention abilities. By paying attention to factors that affect memory, such as age, stress, sleep, and emotion, you can take steps to ensure that your memory remains strong and effective throughout your life.
-
 

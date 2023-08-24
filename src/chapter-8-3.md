@@ -1,5 +1,3 @@
-Technology-based Brain Training Techniques
-=====================================================================================================
 
 Technology has revolutionized the way we learn and retain information. There are several technology-based brain training techniques that can enhance memory and retention abilities. These techniques include apps, games, and exercises designed to improve cognitive function and memory retention.
 

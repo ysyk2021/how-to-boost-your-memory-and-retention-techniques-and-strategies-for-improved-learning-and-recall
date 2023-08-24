@@ -1,5 +1,3 @@
-Techniques for Attention and Focus
-============================================================================================
 
 In order to effectively enhance your memory and retention, it is essential to improve your attention and focus. By developing techniques for improving your attention and focus, you can ensure that the information you learn is embedded in your memory and can be easily retrieved when needed.
 
