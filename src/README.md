@@ -12,3 +12,7 @@ Finally, we'll discuss how to create a conducive environment for learning and re
 Whether you're a student preparing for exams, a professional looking to enhance your career prospects, or simply someone interested in personal growth, this book has something for everyone. Developing good memory and retention skills takes time and effort, but the benefits are well worth it. By incorporating these techniques into your daily routine, you can improve your memory and recall abilities and take your learning to the next level.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
