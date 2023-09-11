@@ -1,5 +1,4 @@
-Chapter 11: Developing a Regular Study Routine
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of establishing a regular study routine for optimal memory retention and effective learning. A consistent study routine helps create structure, enhances focus, and promotes long-term retention of information. By following a well-designed study routine, you can maximize your productivity and achieve better results in your learning endeavors.
 

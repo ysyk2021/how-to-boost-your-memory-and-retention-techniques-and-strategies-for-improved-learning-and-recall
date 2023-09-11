@@ -1,5 +1,4 @@
-Chapter 9: Memorizing Speeches and Presentations
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Delivering a speech or presentation with confidence and accuracy requires effective memorization techniques. This chapter will introduce you to strategies specifically designed to help you memorize speeches and presentations. By implementing these techniques, you'll be able to deliver your content smoothly while engaging your audience.
 

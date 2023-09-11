@@ -1,5 +1,4 @@
-Chapter 10: Best Memory Apps and Tools
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, there are numerous memory apps and tools available to assist you in your quest for improved learning and recall. In this chapter, we will explore some of the best memory apps and tools that can enhance your memory retention capabilities. Whether you prefer mobile apps, websites, or desktop software, incorporating these tools into your study routine can provide valuable support and maximize your learning potential.
 

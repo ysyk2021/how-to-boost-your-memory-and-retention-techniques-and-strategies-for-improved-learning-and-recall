@@ -1,5 +1,4 @@
-Chapter 10: The Role of Technology in Memory Enhancement
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital era, technological advancements have greatly influenced various aspects of our lives, including memory enhancement. In this chapter, we will explore the role of technology in improving memory and retention. From mobile apps to wearables, there are numerous tools and techniques available that leverage technology to enhance cognitive processes and optimize learning outcomes. Let's delve into the ways technology can aid in memory enhancement:
 

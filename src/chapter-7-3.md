@@ -1,5 +1,4 @@
-Chapter 6: Memorizing Foreign Languages
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Learning a foreign language requires the ability to memorize new vocabulary, grammar rules, and pronunciation. In this chapter, we will explore effective techniques and strategies specifically designed to help you memorize foreign languages. By incorporating these methods into your language learning routine, you can enhance your retention and recall abilities, accelerating your progress.
 

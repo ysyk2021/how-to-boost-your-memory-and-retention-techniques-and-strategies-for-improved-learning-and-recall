@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Attention and Focus
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining attention and focus is essential for effective learning and memory retention. In this chapter, we will explore various techniques to improve your attention span and enhance your ability to concentrate on the material at hand. By incorporating these strategies into your study routine, you can optimize your learning experience and achieve better retention outcomes.
 

@@ -1,5 +1,4 @@
-Chapter 8: Active Learning Strategies for Improved Retention
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Active learning strategies are powerful techniques that promote active engagement with the material, leading to improved retention and understanding. In this chapter, we will explore various active learning strategies that can enhance your memory and retention capabilities. By incorporating these methods into your study routine, you can maximize your learning potential and achieve better long-term retention.
 

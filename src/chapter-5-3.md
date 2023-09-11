@@ -1,5 +1,4 @@
-Chapter 8: Tips for Practicing and Retaining New Information
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Learning new information is one thing, but retaining it effectively is another. In this chapter, we will explore practical tips and strategies for practicing and retaining new knowledge to enhance learning outcomes and boost memory performance.
 

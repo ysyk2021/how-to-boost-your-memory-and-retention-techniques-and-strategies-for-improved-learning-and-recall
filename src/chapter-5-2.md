@@ -1,5 +1,4 @@
-Chapter 1: Building a Strong Memory Foundation
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To improve your memory and enhance your learning abilities, it is crucial to establish a strong foundation. This chapter will guide you through various techniques and strategies that lay the groundwork for an efficient memory system. By implementing these practices, you can optimize your brain's capacity to retain and recall information.
 

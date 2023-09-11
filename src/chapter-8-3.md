@@ -1,5 +1,4 @@
-Chapter 6: Technology-Based Brain Training Techniques
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, technology offers a wide range of tools and resources that can enhance our memory and retention abilities. This chapter explores various technology-based brain training techniques that can help boost your memory and improve learning and recall.
 

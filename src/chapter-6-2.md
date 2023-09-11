@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Repetition and Review
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant benefits of repetition and review in enhancing memory and improving learning and recall. Repeating and reviewing information can reinforce neural connections, strengthen memory retention, and optimize the learning process.
 

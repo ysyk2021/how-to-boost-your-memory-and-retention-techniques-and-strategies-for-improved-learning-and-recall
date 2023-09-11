@@ -1,5 +1,4 @@
-Chapter 9: Memorizing Dates, Names, and Numbers
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Memorizing dates, names, and numbers can often be a challenging task. In this chapter, we will explore techniques and strategies specifically designed to help you improve your memory for these types of information. By implementing these techniques, you'll be able to recall important dates, names, and numbers with greater ease and accuracy.
 

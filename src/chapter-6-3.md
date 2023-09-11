@@ -1,5 +1,4 @@
-Chapter 10: Mindfulness Practices for Improved Memory
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful impact of mindfulness practices on memory enhancement. Mindfulness involves cultivating present-moment awareness and nonjudgmental attention. By incorporating mindfulness into your daily life and study routine, you can improve focus, reduce stress, and optimize memory retention and recall.
 

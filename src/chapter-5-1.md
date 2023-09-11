@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Rehearsing Information Effectively
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Rehearsing information is a critical step in the learning process as it helps solidify memory and improve recall. In this chapter, we will explore various techniques and strategies to rehearse information effectively. By incorporating these methods into your learning routine, you can enhance your understanding, retention, and ability to recall information accurately.
 

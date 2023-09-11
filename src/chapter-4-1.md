@@ -1,5 +1,4 @@
-Chapter 9: Optimizing Your Study Environment
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating an optimal study environment for boosting memory and retention. The study environment plays a significant role in facilitating concentration, reducing distractions, and promoting effective learning. By implementing specific strategies to optimize your study environment, you can maximize your learning potential and improve memory recall.
 

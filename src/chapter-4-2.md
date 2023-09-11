@@ -1,5 +1,4 @@
-Chapter 11: Using Effective Study Techniques
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various effective study techniques that can enhance your learning experience, improve memory retention, and boost your overall academic performance. By incorporating these techniques into your study routine, you can optimize your learning potential and achieve better results.
 

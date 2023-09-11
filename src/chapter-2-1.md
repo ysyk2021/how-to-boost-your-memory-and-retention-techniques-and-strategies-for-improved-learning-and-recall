@@ -1,5 +1,4 @@
-Chapter 3: The Science of Memory and Human Cognition
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the fascinating field of memory and human cognition. Understanding the underlying science behind memory formation, storage, and retrieval can provide valuable insights into how we learn and remember information. By exploring key concepts and processes, we can utilize this knowledge to develop effective strategies for boosting memory and optimizing learning outcomes.
 
